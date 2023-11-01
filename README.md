@@ -9,7 +9,7 @@
 </div>
 
 <div align='center'>
-<a href="https://github.com/QUEEN-NORA-OFFICIAL/QUEEN-NORA-MD-V2"><img src="https://i.ibb.co/PFdnLRq/replicate-prediction-b4ajl4bbgqg534z3xurddwigvu.png" width="350" height="350">
+<a href="https://github.com/QUEEN-NORA-OFFICIAL/QUEEN-NORA-MD-V2"><img src="https://ibb.co/48SPzMp/replicate-prediction-b4ajl4bbgqg534z3xurddwigvu.png" width="350" height="350">
 </div>
 
 <div align='center'>
