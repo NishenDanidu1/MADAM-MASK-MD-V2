@@ -33,9 +33,3 @@
 
 <br></br>
 ><h1>𝙱𝙾𝚃 𝙸𝚂: DEVELOPING<h1>
-
-
-| <a href="/"><img src="https://i.ibb.co/tpMT9FW/image.png" width=150 height=150></a> | <a href="http://tiktok.com/@vip_duleya"><img src="https://i.ibb.co/CVyjBXp/e0e70b3f-e3de-4aee-97bd-14904fdd48c-1.jpg" width=150 height=150></a> | <img src="https://i.ibb.co/jhh4Xy6/image.png" width=150 height=150></a> |
-|---|---|---|
-| **[MADAM MASK](https://github.com/MADAM-MASK-OFFICIAL)**</br>  • 𝔹𝕆𝕋 •</br> | **[MR DULEN](https://github.com/DULENS-PROJECTS)**</br>• 𝔸𝔻𝕄𝕀ℕ •|**</br>• ℂ𝕆 𝔸𝔻𝕄𝕀ℕ •
-
